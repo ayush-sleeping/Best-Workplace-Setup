@@ -24,18 +24,19 @@
 
 <br>
 
-## Best Gaming Setups <br>
+## Best Gaming Setups
+
 <br>
 
-1.  Credit _ @gizmoegaming <br>
+  *  Credit _ @gizmoegaming <br>
 
  <p align="center">
-   <img src="https://github.com/ayush-sleeping/Best-Workplace-Setup/blob/main/Best%20Gaming%20Setup/GTA%205%20label%20two%20hearts%20Credit%20_%20%40gizmoegaming%20%20(%201350%20X%201080%20).jpg" height="1350px" width="1080px" />
+   <img src="https://github.com/ayush-sleeping/Best-Workplace-Setup/blob/main/Best%20Gaming%20Setup/GTA%205%20label%20two%20hearts%20Credit%20_%20%40gizmoegaming%20%20(%201350%20X%201080%20).jpg" width="500px" />
  </p>
 
 <br>
 
-2.  Gaming-addiction <br>
+  *  Gaming-addiction <br>
 
  <p align="center">
    <img src="https://github.com/ayush-sleeping/Best-Workplace-Setup/blob/main/Best%20Gaming%20Setup/Gaming-addiction(%201350%20X%201080%20).jpg" width="500px" />
@@ -43,10 +44,11 @@
 
 <br>
 
-## Classic with LED Combination Setups <br>
+## Classic with LED Combination Setups
+
 <br>
 
-1. From _ @chau_codes <br>
+  * From _ @chau_codes <br>
  
  <p align="center">
    <img src="https://github.com/ayush-sleeping/Best-Workplace-Setup/blob/main/Classic%20with%20LED%20Combination/From%20_%20%40chau_codes%20(%201350%20X%201080%20).jpg" width="500px" />
@@ -54,7 +56,7 @@
 
 <br>
 
-2.  From @thesetupking <br>
+  *  From @thesetupking <br>
 
 <p align="center">
    <img src="https://github.com/ayush-sleeping/Best-Workplace-Setup/blob/main/Classic%20with%20LED%20Combination/From%20%40thesetupking.jpg" width="500px" />
@@ -62,10 +64,11 @@
 
 <br>
 
-## Apple Lovers Setups <br>
+## Apple Lovers Setups
+
 <br>
 
-1. From @conorbutkovic <br>
+  * From @conorbutkovic <br>
 
 <p align="center">
    <img src="https://github.com/ayush-sleeping/Best-Workplace-Setup/blob/main/Apple%20Lovers/from%20%40conorbutkovic..jpg" width="500px" />
@@ -73,10 +76,11 @@
 
 <br>
 
-## Simple and Classic SetUps <br>
+## Simple and Classic SetUps
+
 <br>
 
-1. Credit_ @jeffnhorner <br>
+  * Credit_ @jeffnhorner <br>
 
 <p align="center">
    <img src="https://github.com/ayush-sleeping/Best-Workplace-Setup/blob/main/Simple%20and%20Classic%20SetUp/Credit_%20%40jeffnhorner%20(%201080%20X%201080%20).jpg" width="500px" />
@@ -84,7 +88,7 @@
 
 <br>
 
-2. Clean Minimal Bluish Setup <br>
+  * Clean Minimal Bluish Setup <br>
 
 
 <p align="center">
@@ -93,10 +97,11 @@
 
 <br>
 
-## Other setups <br>
+## Other setups
+
 <br>
 
-1. All Perfect - By @olivur.morris <br>
+  * All Perfect - By @olivur.morris <br>
 
 <p align="center">
    <img src="https://github.com/ayush-sleeping/Best-Workplace-Setup/blob/main/Others/All%20Perfect%20-%20By%20%40olivur.morris%20%20.%20.%20.%20.%20.%20(%201350%20X%201080%20).jpg" width="500px" />
@@ -104,7 +109,7 @@
 
  <br>
 
-2.  Horizon Forbbiden West <br>
+  *  Horizon Forbbiden West <br>
 
 <p align="center">
    <img src="https://github.com/ayush-sleeping/Best-Workplace-Setup/blob/main/Others/Horizon%20Forbbiden%20West.(%201349%20X%201080%20).jpg" width="500px" />
