@@ -1,6 +1,10 @@
 # Best-Workplace-Setups
 > **This 🔥 repository contains Collection ✨of probably best 💻 Workplace Setup .** <br>
 > **All this Setups are collects from "Instagram" and also in every name of the setups file the "user name" is mentioned**
+<p align="center">
+   <img src="https://github.com/ayush-sleeping/Its-Nothing-don-t-open-it/blob/main/djshvj.jpg" width="1000px" />
+ </p>
+
 #
 
 ####  This Repository is very helpful for those:
@@ -38,6 +42,78 @@
 
  <p align="center">
    <img src="https://github.com/ayush-sleeping/Best-Workplace-Setup/blob/main/Best%20Gaming%20Setup/Gaming-addiction(%201350%20X%201080%20).jpg" width="500px" />
+ </p>
+
+<br>
+
+* From andrascorner <br>
+
+<p align="center">
+   <img src="https://github.com/ayush-sleeping/Best-Workplace-Setup/blob/main/Best%20Gaming%20Setup/From%20andrascorner%20%20(%201350%20X%201080%20).jpg" width="500px" />
+ </p>
+
+<br>
+
+* Let's jump in Game <br>
+
+<p align="center">
+   <img src="https://github.com/ayush-sleeping/Best-Workplace-Setup/blob/main/Best%20Gaming%20Setup/Let's%20jump%20in%20Game(%201102%20X%201080%20).jpg" width="500px" />
+ </p>
+
+<br>
+
+* From @thesetupzone <br>
+
+<p align="center">
+   <img src="https://github.com/ayush-sleeping/Best-Workplace-Setup/blob/main/Best%20Gaming%20Setup/From%20%40thesetupzone%20(%201080%20X%201080%20).jpg" width="500px" />
+ </p>
+
+<br>
+
+* From @setupwaarzz  <br>
+
+<p align="center">
+   <img src="https://github.com/ayush-sleeping/Best-Workplace-Setup/blob/main/Best%20Gaming%20Setup/From%20%40setupwaarzz%20(%201350%20X%201080%20).jpg" width="500px" />
+ </p>
+
+<br>
+
+* From @scars3.4   <br>
+
+<p align="center">
+   <img src="https://github.com/ayush-sleeping/Best-Workplace-Setup/blob/main/Best%20Gaming%20Setup/From%20%40scars3.4%20.%20%20(%201080%20X%201080%20).jpg" width="500px" />
+ </p>
+
+<br>
+
+* From @miss.debsy   <br>
+
+<p align="center">
+   <img src="https://github.com/ayush-sleeping/Best-Workplace-Setup/blob/main/Best%20Gaming%20Setup/From%20%40miss.debsy%20(%201350%20X%201080%20).jpg" width="500px" />
+ </p>
+
+<br>
+
+* Credits to @andrascorner   <br>
+
+<p align="center">
+   <img src="https://github.com/ayush-sleeping/Best-Workplace-Setup/blob/main/Best%20Gaming%20Setup/Credits%20to%20%40andrascorner%20%20(%201350%20X%201080%20).jpg" width="500px" />
+ </p>
+
+<br>
+
+* @sarahs_playground  <br>
+
+<p align="center">
+   <img src="https://github.com/ayush-sleeping/Best-Workplace-Setup/blob/main/Best%20Gaming%20Setup/%40sarahs_playground%20%20(%20794%20X%201080%20).jpg" width="500px" />
+ </p>
+
+<br>
+
+* - gaming -  <br>
+
+<p align="center">
+   <img src="https://github.com/ayush-sleeping/Best-Workplace-Setup/blob/main/Best%20Gaming%20Setup/-%20gaming%20-%20%20(%20937%20X%20750%20).jpg" width="500px" />
  </p>
 
 <br>
