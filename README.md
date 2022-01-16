@@ -190,6 +190,47 @@
  </p>
 
 <br>
+
+*  Dope or Nope_ <br>
+
+<p align="center">
+   <img src="https://github.com/ayush-sleeping/Best-Workplace-Setup/blob/main/Others/Dope%20or%20Nope_%20(%201350%20X%201080%20).jpg" width="500px" />
+ </p>
+
+<br>
+
+*  From @setupnoid <br>
+
+<p align="center">
+   <img src="https://github.com/ayush-sleeping/Best-Workplace-Setup/blob/main/Others/From%20%40setupnoid%20(%201070%20X%201080%20).jpg" width="500px" />
+ </p>
+
+<br>
+
+*  Just look at it! <br>
+
+<p align="center">
+   <img src="https://github.com/ayush-sleeping/Best-Workplace-Setup/blob/main/Others/Just%20look%20at%20it!%20Our%20minimalistic%20designed%20Desk%20Mat%20can%20change%20your%20whole%20setup%20%20(%201102%20X%201080%20).jpg" width="500px" />
+ </p>
+
+<br>
+
+*  Office look <br>
+
+<p align="center">
+   <img src="https://github.com/ayush-sleeping/Best-Workplace-Setup/blob/main/Others/Office%20look%20(%201342%20X%201080%20).jpg" width="500px" />
+ </p>
+
+<br>
+
+*  From _ @iamben_26 <br>
+
+<p align="center">
+   <img src="https://github.com/ayush-sleeping/Best-Workplace-Setup/blob/main/Others/%EF%BC%8E%20From%20_%20%40iamben_26%20(%201350%20X%201080%20).jpg" width="500px" />
+ </p>
+
+<br>
+
 <br>
 
 <div align="center">
