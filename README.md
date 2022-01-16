@@ -192,6 +192,62 @@
 
 <br>
 
+* Credit_ @tsukishiro <br>
+
+<p align="center">
+   <img src="https://github.com/ayush-sleeping/Best-Workplace-Setup/blob/main/Simple%20and%20Classic%20SetUp/Credit_%20%40tsukishiro.%20(%20715%20X%201080%20).jpg" width="500px" />
+ </p>
+
+<br>
+
+* Extremely chill and clean laptop setup! <br>
+
+<p align="center">
+   <img src="https://github.com/ayush-sleeping/Best-Workplace-Setup/blob/main/Simple%20and%20Classic%20SetUp/Extremely%20chill%20and%20clean%20laptop%20setup!%20%20(%201080%20X%201080%20).jpg" width="500px" />
+ </p>
+
+<br>
+
+* From @setupsland <br>
+
+<p align="center">
+   <img src="https://github.com/ayush-sleeping/Best-Workplace-Setup/blob/main/Simple%20and%20Classic%20SetUp/From%20%40setupsland%20(%201076%20X%201080%20).jpg" width="500px" />
+ </p>
+
+<br>
+
+* From asussg <br>
+
+<p align="center">
+   <img src="https://github.com/ayush-sleeping/Best-Workplace-Setup/blob/main/Simple%20and%20Classic%20SetUp/From%20asussg%20%20(%201080%20X%201080%20).jpg" width="500px" />
+ </p>
+
+<br>
+
+* From lottee.js <br>
+
+<p align="center">
+   <img src="https://github.com/ayush-sleeping/Best-Workplace-Setup/blob/main/Simple%20and%20Classic%20SetUp/From%20lottee.js%20%E2%80%A2%20%20(%201080%20X%201080%20).jpg" width="500px" />
+ </p>
+
+<br>
+
+* From mindsers.codes <br>
+
+<p align="center">
+   <img src="https://github.com/ayush-sleeping/Best-Workplace-Setup/blob/main/Simple%20and%20Classic%20SetUp/From%20mindsers.codes%20%20(%201350%20X%201080%20).jpg" width="500px" />
+ </p>
+
+<br>
+
+* by @thesetupcenter  <br>
+
+<p align="center">
+   <img src="https://github.com/ayush-sleeping/Best-Workplace-Setup/blob/main/Simple%20and%20Classic%20SetUp/Minimalistic%20Setup%20Of%20The%20Day%20_black_square_button_%E2%81%A3%E2%81%A3%20by%20%40thesetupcenter%20%E2%81%A3%20%20(%201350%20X%201080%20).jpg" width="500px" />
+ </p>
+
+<br>
+
 <!-- ----------------------------------------------------------------------------------------------------------------------------------------------------       -->
 <!-- ----------------------------------------------------------------------------------------------------------------------------------------------------       -->
 
