@@ -153,6 +153,71 @@
 
 <br>
 
+*  Credit_ @ir <br>
+
+<p align="center">
+   <img src="https://github.com/ayush-sleeping/Best-Workplace-Setup/blob/main/Classic%20with%20LED%20Combination/Credit_%20%40ir%20(%201345%20X%201080%20).jpg" width="500px" />
+ </p>
+
+<br>
+
+*  Credit_ @shepherdmusik <br>
+
+<p align="center">
+   <img src="https://github.com/ayush-sleeping/Best-Workplace-Setup/blob/main/Classic%20with%20LED%20Combination/Credit_%20%40shepherdmusik%20%20.%20(%20989%20X%201080%20).jpg" width="500px" />
+ </p>
+
+<br>
+
+*  From @feriktantomi <br>
+
+<p align="center">
+   <img src="https://github.com/ayush-sleeping/Best-Workplace-Setup/blob/main/Classic%20with%20LED%20Combination/From%20%40feriktantomi.jpg" width="500px" />
+ </p>
+
+<br>
+
+*  From @setupnoid <br>
+
+<p align="center">
+   <img src="https://github.com/ayush-sleeping/Best-Workplace-Setup/blob/main/Classic%20with%20LED%20Combination/From%20%40setupnoid%20(%201168%20X%201080%20).jpg" width="500px" />
+ </p>
+
+<br>
+
+*  From storessetup <br>
+
+<p align="center">
+   <img src="https://github.com/ayush-sleeping/Best-Workplace-Setup/blob/main/Classic%20with%20LED%20Combination/From%20storessetup%20%20(%201080%20X%201080%20).jpg" width="500px" />
+ </p>
+
+<br>
+
+*  NEW Office Space @ankemedia <br>
+
+<p align="center">
+   <img src="https://github.com/ayush-sleeping/Best-Workplace-Setup/blob/main/Classic%20with%20LED%20Combination/NEW%20Office%20Space%20%40ankemedia(%201350%20X%201080%20).jpg" width="500px" />
+ </p>
+
+<br>
+
+*  awesome setup_ <br>
+
+<p align="center">
+   <img src="https://github.com/ayush-sleeping/Best-Workplace-Setup/blob/main/Classic%20with%20LED%20Combination/awesome%20setup_%20%20(%20934%20X%20750%20).jpg" width="500px" />
+ </p>
+
+<br>
+
+*  via @mr.atton - cleanminimalism <br>
+
+<p align="center">
+   <img src="https://github.com/ayush-sleeping/Best-Workplace-Setup/blob/main/Classic%20with%20LED%20Combination/via%20%40mr.atton%20-%20cleanminimalism%20(%201350%20X%201080%20).jpg" width="500px" />
+ </p>
+
+<br>
+
+
 <!-- ----------------------------------------------------------------------------------------------------------------------------------------------------       -->
 <!-- ----------------------------------------------------------------------------------------------------------------------------------------------------       -->
 
